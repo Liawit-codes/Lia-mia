@@ -1,3 +1,1 @@
 # Lia-mia
-
-[Uploading microbiology…]()
